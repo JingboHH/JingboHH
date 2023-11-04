@@ -1,4 +1,4 @@
-Potential article:
+## Potential article:
 The 2022 NFL season was the 103rd season of the National Football League (NFL). The season began on September 8, 2022, with the defending Super Bowl LVI champion Los Angeles Rams falling to Buffalo in the NFL Kickoff Game, and ended on January 8, 2023. The playoffs started on January 14 and concluded with Super Bowl LVII, the league's championship game, at State Farm Stadium in Glendale, Arizona on February 12, with Kansas City defeating Philadelphia.
 The former Washington Redskins, after two seasons of using the placeholder name Washington Football Team, were renamed the Washington Commanders prior to the start of the season.[2]
 The week 17 game between Buffalo and Cincinnati was canceled after Buffalo safety Damar Hamlin suffered a nonfatal cardiac arrest on the field of play. It was the first regular season game to be canceled and not rescheduled since the 1987 NFLPA players' strike.[3]
